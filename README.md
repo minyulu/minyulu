@@ -7,8 +7,9 @@
 - 游泳
 - 彈鋼琴
 - 旅遊
+- 睡覺
 ## 照片
-![](https://media.istockphoto.com/photos/happy-shiba-inu-dog-on-yellow-redhaired-japanese-dog-smile-portrait-picture-id1197121742?k=20&m=1197121742&s=612x612&w=0&h=HX4DoFCL1RDlegj3P9w4O2H64sgwKvMP0VSki7sBEtE=)
+![](https://3.bp.blogspot.com/-XtjSN-_lbG0/XMhNjm58oEI/AAAAAAAGenA/14AkI_kSFKgUy8dSG-3HSJrcxcQWI10AgCLcBGAs/s1600/girl-taking-picture%2B%255B2%255D.jpg)
 ## 社群網站
 1. [FaceBook](https://www.facebook.com/profile.php?id=100084764236899)
 2. [Instergram](https://www.instagram.com/zzmimii/)
