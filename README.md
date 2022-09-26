@@ -1,5 +1,5 @@
 # 呂敏瑜:sparkling_heart:
-![](https://www.xintp.com/xntk/91014.html/2)
+![](https://img.xintp.com/c2022/03/17/he2udww1soz.jpg)
 [TOC]
 ## 自我介紹
 大家好，我是呂敏瑜，目前就讀中原大學電機系碩士班一年級  
@@ -9,6 +9,7 @@
 - 彈鋼琴
 - 旅遊
 - 睡覺
+
 ## 照片
 ![](https://3.bp.blogspot.com/-XtjSN-_lbG0/XMhNjm58oEI/AAAAAAAGenA/14AkI_kSFKgUy8dSG-3HSJrcxcQWI10AgCLcBGAs/s1600/girl-taking-picture%2B%255B2%255D.jpg)
 ![]()
