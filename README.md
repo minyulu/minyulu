@@ -1,5 +1,5 @@
 # 呂敏瑜:sparkling_heart:
-![](07130442-1.jpg)
+![](https://www.xintp.com/xntk/91014.html/2)
 [TOC]
 ## 自我介紹
 大家好，我是呂敏瑜，目前就讀中原大學電機系碩士班一年級  
